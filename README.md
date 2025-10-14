@@ -1,1 +1,1 @@
-# kingschool
+удалить
